@@ -1,1 +1,1 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=yeorido)
+![](https://komarev.com/ghpvc/yeorido&color=ccc0e8)
