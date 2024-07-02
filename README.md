@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/yeorido&color=ccc0e8)
+![](https://komarev.com/ghpvc/?username=yeorido&label=★+୧+aespa&color=ccc0e8)
