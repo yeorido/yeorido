@@ -1,1 +1,1 @@
-  ![](https://komarev.com/ghpvc/?username=yeorido&label=bloop+ʚ♡ɞ&color=3D211A)
+  ![](https://komarev.com/ghpvc/?username=yeorido&label=jellyfish+✦&color=ABE6E7)
